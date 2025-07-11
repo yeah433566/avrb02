@@ -27,5 +27,5 @@
 结语  
 选择安全可靠的在线视频平台观看日本AV影片，不仅能确保高清画质，还能保障个人数据安全，提升观影体验。  
  
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link]( https://github.com/yeah433566/avrb02)</span>
 
